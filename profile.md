@@ -1,1 +1,1 @@
-# SAMURAI - <BRIJESH KUMAR>
+# SAMURAI - Brijesh Kumar
